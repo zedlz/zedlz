@@ -1,0 +1,2 @@
+- yo I'm zed I'm ass at coding please be nice to me
+- like literally I'm trying to find a place to learn
